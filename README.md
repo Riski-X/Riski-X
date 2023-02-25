@@ -1,8 +1,11 @@
 - 👋 HI, Saya Riski
-- ⭐ Kasi Bintang lah dah gratis 
-- 🇲🇨 Salam Indonesia
+- ⭐ FOLLOW/STAR
+- 🇲🇨 BEEBAGI ITU INDAH
 
 
-Kasih bintang yah cok ini repositori baru Aj
+INI GITHUB BARU BANG DI MOHON KASIH FOLLOW/STAR JIKA ANDA SUKA
+KLUA AMDA FOLLOW/STAR SAYA AKAN RAJIN BAGI BAGI SKRIP
 
-Babay
+
+
+Belaja jangan cuma tau ubah" SKRIP orang
